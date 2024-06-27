@@ -3,10 +3,10 @@
 ＪＡＩ ＳＨＲＥＥ ＲＡＭ 🚩🚩
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <p align="center">
-ＳＡＮＡＴＡＮＩ ＳＰＡＭ ＢＯＴ
+L U C I F E R ＳＰＡＭ ＢＯＴ
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <h2 align="center">
-    ──「 sᴀᴄʜɪɴ 」──
+    ──「𓆩𝑳𝑼𝑪𝜤𝑭𝜠𝜞ꭗ‌ 𝙊𝙋𓆪 ↠💸⃤」──
     <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 </h2>
 <p align="center">
